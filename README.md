@@ -1,1 +1,1 @@
-*Four teams are battling for honor
+*Four teams are battling for honor*
